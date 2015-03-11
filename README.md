@@ -1,3 +1,3 @@
 # SchuleUndSo
 
-10te - 1nser zweig - bayern
+10te - 1er zweig - bayern
